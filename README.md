@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @PerroneLorenzo
+- 👀 I’m interested in Soccer
+- 🌱 I’m currently learning Project Managment
+- 💞️ I’m looking to collaborate on App developing
+- 📫 How to reach me (don't) email
